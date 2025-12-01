@@ -13,7 +13,7 @@
 
 - 🌱 I’m currently learning **cybersecurity**
 
-- 📫 How to reach me **bistas933@gmail.com**
+- 📫 How to reach me **bistas933@gmail.com**   **kaloobaagh@ncateam.xyz**
 
 - ⚡ Fun fact **I think i am haapy**
 
